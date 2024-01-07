@@ -1,0 +1,5 @@
+- hey i'm @crookedmystic!
+- here to learn & make fun stuff
+- working on music for a game jam :)
+- down to collab on wtevr
+- @nikkigobrr on disc
